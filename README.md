@@ -144,3 +144,4 @@ La importancia de los circuitos eléctricos es tal que en cualquier instalación
 
 Robbins, A. H., & Miller, W. C. (2010). Análisis de circuitos eléctricos. Teoría y práctica [recurso electrónico].: Vol. 4 Edición (Revisado ed.). Cengage Learning Editores, S.A. De C.V. http://www.untumbes.edu.pe/vcs/biblioteca/document/varioslibros/An%C3%A1lisis%20de%20circuitos.pdf
 
+Gracias por su Atencion 
